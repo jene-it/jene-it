@@ -1,5 +1,6 @@
 <div align="center">
 
+![Akutagawa x Atsushi!!! ♡](https://github.com/user-attachments/assets/b934ac1d-d8d7-4acb-821b-1d3a228905ea)
 
 <img width="1280" height="68" alt="3u0gsl" src="https://github.com/user-attachments/assets/d6a4a6ef-37b0-44cc-8b7f-d2c08f49d9ca" />
 
