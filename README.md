@@ -23,4 +23,17 @@
 (  Eng only!!  )
 
 
+............ (_　_)。゜zｚＺ ............
 
+
+
+" Away with you, you fool...."
+
+
+![atsushi-akutagawa](https://github.com/user-attachments/assets/f6c265bc-ccae-43cc-a989-bcf80e2a638c)
+
+
+<img width="512" height="48" alt="g7e2i8" src="https://github.com/user-attachments/assets/92c6bb6f-d070-4359-a2f4-90b301ca91a9" />
+
+
+![ye-discography-cats](https://github.com/user-attachments/assets/342a2051-e789-4161-b027-e05cfcfb4f88)
