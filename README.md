@@ -18,3 +18,8 @@ matching with @hevenly :)
 
 
 ![pi8eyo](https://github.com/user-attachments/assets/c8d1b375-6228-4631-975d-17b5c4933601)
+
+
+⠀_ _
+⠀　　𐙚　　Istp ۶ৎ 6w5 ۶ৎ 465 ۶ৎ 2E 　 ₊  ◞　
+　˙　　˳　　⁺　𐂯 africn-american.ᐟ⸝⸝
