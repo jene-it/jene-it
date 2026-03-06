@@ -25,4 +25,4 @@ matching with @hevenly :)
 
 𐙚　Istp ۶ৎ 6w5 ۶ৎ 465 ۶ৎ 2E  ₊ 𓏲ּ𝄢 ◞　
 
- ˙　⁺　𐂯 africn-american.ᐟ⸝⸝
+⁺　𐂯 africn-american.ᐟ⸝⸝
