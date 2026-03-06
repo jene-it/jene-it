@@ -25,4 +25,11 @@ matching with @hevenly :)
 
 𐙚　Istp ۶ৎ 6w5 ۶ৎ 465 ۶ৎ 2E  ₊ 𓏲ּ𝄢 ◞　
 
+
+![2FRIKxy](https://github.com/user-attachments/assets/324e6aef-7fae-4cc8-8797-902351e5e3db)
+![Yuuna](https://github.com/user-attachments/assets/60b6f7ef-6bc9-4048-af1a-74b4ae413729)
+![2FRIKxy](https://github.com/user-attachments/assets/927e5cb0-70dd-4eb9-8fd1-699df7a693f6)
+
+
+
 ⁺　𐂯 africn-american.ᐟ⸝⸝
