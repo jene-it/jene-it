@@ -22,6 +22,9 @@ Istp 6w5 ₊˚⊹ᰔ 645 🩶
 ![tumblr_fc6d9c8075adecf726ff442a8687a524_38fa6e69_250](https://github.com/user-attachments/assets/4f3f2411-6cfe-42ce-8aff-b6f2e6209d26)
 ![x14](https://github.com/user-attachments/assets/43757e84-57d8-4980-92ea-8654ea857704)
 ![x55](https://github.com/user-attachments/assets/6f0b113a-8b33-43e9-8f28-9814c657da41)
+![x22](https://github.com/user-attachments/assets/4da82526-7eb9-4c99-bfbb-d70eb6166b2b)
 
 
 in the procces of making a straw page >.<
+
+<img width="224" height="224" alt="sticker" src="https://github.com/user-attachments/assets/6021d371-d849-40a4-be03-52c712c506cb" />
