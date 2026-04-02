@@ -16,3 +16,5 @@ Istp 6w5 ₊˚⊹ᰔ 645 🩶
 ⤷ dark/multishipper , multifandom ᝰ.ᐟ
 
 ![ae8276591b4101668cc4fe0b6a6e3f22](https://github.com/user-attachments/assets/ba094dc3-9077-4ddf-a325-90f0a7885c59)
+
+in the procces of making a straw page >.<
