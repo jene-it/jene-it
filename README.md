@@ -29,6 +29,6 @@ multifandom (extremely)ᝰ.ᐟ
 ![x22](https://github.com/user-attachments/assets/4da82526-7eb9-4c99-bfbb-d70eb6166b2b)
 
 
-in the procces of making a straw page >.<
+"Wow... Another reference we don't get. You must be a hardcore loser!>_<, " - kokichi ouma
 
 <img width="224" height="224" alt="sticker" src="https://github.com/user-attachments/assets/6021d371-d849-40a4-be03-52c712c506cb" />
