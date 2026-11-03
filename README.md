@@ -18,7 +18,7 @@ Istp 5w4 ₊˚⊹ᰔ 541 mel-pheg🩶
 
 multifandom (extremely)ᝰ.ᐟ
 
-<img width="736" height="669" alt="image (1)" src="https://github.com/user-attachments/assets/ab8e11cc-f7c4-421f-b65d-fc62b5edf864" />
+<img width="536" height="369" alt="image (1)" src="https://github.com/user-attachments/assets/ab8e11cc-f7c4-421f-b65d-fc62b5edf864" />
 
 
 ![tumblr_bfe0f2d21bb4ba5c529e9df52baa07ae_6a47212f_250](https://github.com/user-attachments/assets/a5e8182f-891e-4244-b938-aad67367f76a)
